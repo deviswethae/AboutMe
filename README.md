@@ -15,7 +15,7 @@
 
 - 📫 How to reach me ****deviswethae@gmail.com****
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ez-_OeoE-NPpRjKvbNdviy70zoig2idF/view?usp=drive_link](https://drive.google.com/file/d/1ez-_OeoE-NPpRjKvbNdviy70zoig2idF/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ez-_OeoE-NPpRjKvbNdviy70zoig2idF/view?usp=drive_link](https://drive.google.com/file/d/1iGuccWZR85nqNAdK_3bsp9MsvWlxF-ao/view?usp=sharing)
 
 - ⚡ Fun fact **I love building real-world web applications**
 
